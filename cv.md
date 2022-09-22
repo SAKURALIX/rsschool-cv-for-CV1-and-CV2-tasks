@@ -1,3 +1,3 @@
-# Pavel Tsaturau Vadimovich
+# Pavel Tsaturau
 
 ## Contacts
